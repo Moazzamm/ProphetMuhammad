@@ -1,4 +1,4 @@
-Prophet Muhammad ﷺ,God's Final Prophet.
+Prophet Muhammad ﷺ, God's Final Prophet.
 
 
 Made Using : 
